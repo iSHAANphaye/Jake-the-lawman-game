@@ -25,3 +25,5 @@ Not just this, I also got an internship offer from them, with stipend and hostel
 Sadly, I had to decline for some reasons, but nonetheless this was an experience.
 
 Tl;dr: I remade a game in 2 days and got in the top 10 among 3500+ submissions
+
+Link for the game intro video: https://www.youtube.com/watch?v=Or1P06K60Xk&t=1s
